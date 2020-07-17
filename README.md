@@ -1,1 +1,9 @@
-# 00000000
+7 C B E    精 essence; semen; spirit
+7 9 5 E    神 spirit, god, supernatural being
+9 A D 8    高 high, tall; lofty, elevated
+6 5 B C    於 in, at, on; interjection alas!
+
+7 2 6 9    物 thing, substance, creature
+8 C E A    質 matter, material, substance
+5 F A E    微 small, prefix micro-, trifling
+7 C 9 2    粒 grain; small particle
